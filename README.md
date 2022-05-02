@@ -1,1 +1,0 @@
-# mynksdelta.github.io
